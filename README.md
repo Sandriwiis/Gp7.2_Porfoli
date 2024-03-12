@@ -1,0 +1,1 @@
+# Gp7.2_Porfoli
